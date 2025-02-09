@@ -1,6 +1,6 @@
 <div align="center">
 
-
+![divider](https://cdn.discordapp.com/attachments/1272206833511039142/1338132974918697000/Baslksz52_20250209160232.png?ex=67a9f8f2&is=67a8a772&hm=811e0bd8c51b706c4c3cc6ee763e4c46b69cb0c59a7f8b3ecc1eb2b92d5a86fb&)
 
 ![Main graph](https://cdn.discordapp.com/attachments/1272206833511039142/1338102182238752879/Baslksz48_20250209135417.png?ex=67a9dc44&is=67a88ac4&hm=2cc3bc74e4aa1bf699d2c14ba191f278c984c9f742927e7e33a5044dc949301a&)
 
