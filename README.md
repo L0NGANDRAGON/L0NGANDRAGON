@@ -10,4 +10,4 @@
 
 [rentry!](https://rentry.co/longanmeow)
 
-![divider](https://cdn.discordapp.com/attachments/1272206833511039142/1338133789498671246/Baslksz52_20250209160544.png?ex=67a9f9b4&is=67a8a834&hm=9123f6cbcb88e59a6c41e9d3be210710dbfd132ec7ad954cd942d4033bc8cef1&)
+![divider](https://64.media.tumblr.com/e2bfbff8cad897716d515439bc11f369/842b161b862f3572-ec/s2048x3072/46cd4076670aa3d5fac06dfa40ac174137580071.webp)
