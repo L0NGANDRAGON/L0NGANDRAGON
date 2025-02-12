@@ -6,7 +6,7 @@
 
 ![line](https://64.media.tumblr.com/d069c3b9810193d4d19c47862b4d692b/842b161b862f3572-05/s1280x1920/dae4b0edd7353a6e7dd1d3294ffa212819273ee9.webp)
 
-![divider](https://cdn.discordapp.com/attachments/1115673517497794660/1304132295677972512/hqoghy.png?ex=67a98b98&is=67a83a18&hm=785c5a820ca63914b44a835dfc391b5112021982bd2312682f6a8fb6c99eb7db&)
+![divider](https://64.media.tumblr.com/d4d43cdbcd3566e2ccc2095ce3d5923b/3451ae8811483f5a-5f/s540x810/5407638a6d6e32e222b0bd69a4348a98b6657484.gifv)
 
 [rentry!](https://rentry.co/longanmeow)
 
